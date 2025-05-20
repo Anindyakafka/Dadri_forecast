@@ -1,19 +1,14 @@
 **Strategic Social Media and SEO Plan for Dadri Forecast**
 
-Dadri Forecast is a research collective documenting land issues,
-environmental degradation, caste/communal conflict, and extractivism in
-Dadri (Uttar Pradesh).
+Dadri Forecast is a research collective documenting land issues, environmental degradation, caste/communal conflict, and extractivism in Dadri (Uttar Pradesh).
 
 **Instagram Strategy (Mind Map of Content and Tactics)**
 
-- **Content Themes:** Develop posts around *Education*, *Activism*,
-  *Art & Culture*, and *Community Stories*. For example:
+- **Content Themes:** Develop posts around *Education*, *Activism*, *Art & Culture*, and *Community Stories*. For example:
   
-  - *Educational:* Factsheets on Dadri's land rights issues, caste
-    history, and ecological data.
+  - *Educational:* Factsheets on Dadri's land rights issues, caste history, and ecological data.
   
-  - *Movement Updates:* Photos/videos from protests, field visits or
-    meetings; infographics on local research findings.
+  - *Movement Updates:* Photos/videos from protests, field visits or meetings; infographics on local research findings.
   
   - *Art & Culture:* Showcase children's artworks from Khandera Art
     Space and local murals, linking visuals to themes of justice and
