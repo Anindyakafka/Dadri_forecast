@@ -17,57 +17,57 @@ We declare: Dadri is not a blank slate.
 It is not a “backward” locality in need of rescue through glossy schemes of “development.”  
 It is not an empty zone waiting to be filled with cement, concrete, or capital.  
 
-Dadri is a palimpsest—a terrain where forgotten histories, submerged ecologies, stolen futures, and communities committed to a radical future meet each other.
-It is precisely here, beneath the ash and asphalt, that Dadri Forecast takes its flight.
+Dadri is a palimpsest—a terrain where forgotten histories, submerged ecologies, stolen futures, and communities committed to a radical future meet each other.  
+It is precisely here, beneath the ash and asphalt, that Dadri Forecast takes its flight.  
 
-Dadri Forecast is not a fantasy.
-It is an uprising of thought.
-A rupture in the sanitized narratives of the bourgeois-brahminical state.
-A site of insurgent research.
+Dadri Forecast is not a fantasy.  
+It is an uprising of thought.  
+A rupture in the sanitized narratives of the bourgeois-brahminical state.  
+A site of insurgent research.  
 
-We are the Dadri Forecast—
-the lightning before the cloudburst, 
-peafowls’ warning before the dust storm.
+We are the Dadri Forecast—  
+the lightning before the cloudburst,  
+peafowls’ warning before the dust storm.  
 
-We speak from Dadri, but not only for it.
-We speak against the violence of extractive capitalism that swallows soil, homes, and people alike.
-We speak against the idea that only malls, highways, factories, and gated enclaves count as progress.
-We seek to demolish the architecture of communalism that lynches in the name of gods and cows, that fractures lives and communities through the poison of hatred.
+We speak from Dadri, but not only for it.  
+We speak against the violence of extractive capitalism that swallows soil, homes, and people alike.  
+We speak against the idea that only malls, highways, factories, and gated enclaves count as progress.  
+We seek to demolish the architecture of communalism that lynches in the name of gods and cows, that fractures lives and communities through the poison of hatred.  
 
-We dream of a future forecasted not by corporate boardrooms or bureaucratic blueprints, but by the wisdom of wetlands, the memory of water, the dignity of labourers, and the laughter of children at Khandera.
+We dream of a future forecasted not by corporate boardrooms or bureaucratic blueprints, but by the wisdom of wetlands, the memory of water, the dignity of labourers, and the laughter of children at Khandera.  
 
-#### WHY DADRI?
+#### WHY DADRI?  
 
-Because Dadri is a microcosm of ‘India unmade.’
-Because Akhlaq was lynched and murdered here.
-Because the larks don’t sing the way they used to.
-Because the water tables are falling and the smoke stacks rise.
-Because prehistoric ruins still breathe beneath the ground where bulldozers roam.
-Because the commons have been seized, and the people are declared surplus.
-Because this is not just a site of loss — it is also a place of novel possibilities.
+Because Dadri is a microcosm of ‘India unmade.’  
+Because Akhlaq was lynched and murdered here.  
+Because the larks don’t sing the way they used to.  
+Because the water tables are falling and the smoke stacks rise.  
+Because prehistoric ruins still breathe beneath the ground where bulldozers roam.  
+Because the commons have been seized, and the people are declared surplus.  
+Because this is not just a site of loss — it is also a place of novel possibilities.  
 
-Dadri Forecast is our response.
-Urgent. Unapologetic. Undisciplined.
+Dadri Forecast is our response.  
+Urgent. Unapologetic. Undisciplined.  
 
-We align with villagers resisting land grabs, with children imagining otherwise,
-with marshes gasping for survival, with forgotten archives of revolt.
+We align with villagers resisting land grabs, with children imagining otherwise,  
+with marshes gasping for survival, with forgotten archives of revolt.  
 
-We do not offer easy solutions. We pose difficult questions.
-We do not represent. We assert presence.
-We do not build consensus or seek permission.
-We provoke dissensus and make space for the impermissible.
+We do not offer easy solutions. We pose difficult questions.  
+We do not represent. We assert presence.  
+We do not build consensus or seek permission.  
+We provoke dissensus and make space for the impermissible.  
 
-Refusing to be passive witnesses to disaster.
-Refusing nostalgia that traps us in a mythical past.
-Refusing developmentalism that erases the people.
-Refusing liberalism that masks complicity with power.
-Refusing the ivory tower of academia, corporate charity, and the “NGO-isation of resistance.”
+Refusing to be passive witnesses to disaster.  
+Refusing nostalgia that traps us in a mythical past.  
+Refusing developmentalism that erases the people.  
+Refusing liberalism that masks complicity with power.  
+Refusing the ivory tower of academia, corporate charity, and the “NGO-isation of resistance.”  
 
-We envision a militant research practice rooted in community, grounded in care, and fierce in its approach.
-We aim to build an ecology of being and thinking that bridges artists, activists, students, children, workers, and elders.
-We do not want to merely document Dadri — we want a space where the place can be seen, known, felt, and fought for.
+We envision a militant research practice rooted in community, grounded in care, and fierce in its approach.  
+We aim to build an ecology of being and thinking that bridges artists, activists, students, children, workers, and elders.  
+We do not want to merely document Dadri — we want a space where the place can be seen, known, felt, and fought for.  
 
-OUR OBJECTIVES:
+#### OUR OBJECTIVES:  
 
 - ***Zines, Booklets, Reports***: as weapons of counter-knowledge.
 - ***Residencies***: for cultivating durational and embedded solidarities.
@@ -76,12 +76,12 @@ OUR OBJECTIVES:
 - ***Public Dialogues***: as acts of insurgent pedagogy and polemics.
 - ***Playgrounds, Picnics, Workshops***: as spaces where resistance germinates in joy.
 
-This is not an art project with a deadline.
-This is a call to arm the imagination and to commit to the future.
-This is not a drizzle. It is the coming monsoon.
+This is not an art project with a deadline.  
+This is a call to arm the imagination and to commit to the future.  
+This is not a drizzle. It is the coming monsoon.  
 
-Join us, to build a place where children, workers, artists, and students co-author a collective future.
-To cultivate a weather of resistance — forecasting thunderstorms not of destruction, but of awakening.
+Join us, to build a place where children, workers, artists, and students co-author a collective future.  
+To cultivate a weather of resistance — forecasting thunderstorms not of destruction, but of awakening.  
 
-Join us, or be buried in the dust of history.
+Join us, or be buried in the dust of history.  
 
