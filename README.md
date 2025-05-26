@@ -13,9 +13,9 @@ Dadri Forecast has emerged from the community networks built around Khandera Art
 
 ### DADRI FORECAST: A MANIFESTO FOR MILITANT RESEARCH
 
-We declare: Dadri is not a blank slate.
-It is not a “backward” locality in need of rescue through glossy schemes of “development.”
-It is not an empty zone waiting to be filled with cement, concrete, or capital.
+We declare: Dadri is not a blank slate.  
+It is not a “backward” locality in need of rescue through glossy schemes of “development.”  
+It is not an empty zone waiting to be filled with cement, concrete, or capital.  
 
 Dadri is a palimpsest—a terrain where forgotten histories, submerged ecologies, stolen futures, and communities committed to a radical future meet each other.
 It is precisely here, beneath the ash and asphalt, that Dadri Forecast takes its flight.
