@@ -69,12 +69,12 @@ We do not want to merely document Dadri — we want a space where the place can 
 
 OUR OBJECTIVES:
 
-• ***Zines, Booklets, Reports***: as weapons of counter-knowledge.
-• ***Residencies***: for cultivating durational and embedded solidarities.
-• ***Cinema School***: as a way of seeing, remembering, reimagining.
-• ***Libraries***: as sanctuaries of learning and unlearning.
-• ***Public Dialogues***: as acts of insurgent pedagogy and polemics.
-• ***Playgrounds, Picnics, Workshops***: as spaces where resistance germinates in joy.
+- ***Zines, Booklets, Reports***: as weapons of counter-knowledge.
+- ***Residencies***: for cultivating durational and embedded solidarities.
+- ***Cinema School***: as a way of seeing, remembering, reimagining.
+- ***Libraries***: as sanctuaries of learning and unlearning.
+- ***Public Dialogues***: as acts of insurgent pedagogy and polemics.
+- ***Playgrounds, Picnics, Workshops***: as spaces where resistance germinates in joy.
 
 This is not an art project with a deadline.
 This is a call to arm the imagination and to commit to the future.
